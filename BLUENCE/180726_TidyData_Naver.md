@@ -190,10 +190,6 @@ Near Future Direction of Ai 미래 AI특징
 
 
 
-soonmin.bae@navercorp.com
-
-Clover-jobs@navercorp.com
-
 이력서를 보내주세요.
 
 
